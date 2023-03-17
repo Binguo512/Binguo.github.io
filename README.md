@@ -1,0 +1,1 @@
+# Binguo.github.io
